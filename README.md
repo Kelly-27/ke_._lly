@@ -4,9 +4,7 @@
 - 😄 Pronouns: He/Him</br>
 - 
 - I am the color red in a world full of black and white,</br>
-- A blaze of vibrant passion, a beacon burning bright.</br>
 - In a sea of muted tones where shadows softly creep,</br>
-- I stand out like a wildfire, while others fade to sleep.</br>
 - With every heartbeat pounding, I paint the life I seek,</br>
 
 
