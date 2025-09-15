@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ke_._lly</br>
-- 👀 I’m interested in Python programming and Ethical hacking</br>
+- 👀 I’m interested in programming and cyber security</br>
 - 🌱 I’m currently learning Python and Kali Linux</br>
 - 😄 Pronouns: He/Him</br>
 - 
